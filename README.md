@@ -1,3 +1,3 @@
 # Call-of-Delta-COD-
 
-https://github.com/user-attachments/assets/22a29267-8d51-47a7-bfbc-a513fca06ba2
+https://github.com/user-attachments/assets/33c6b0d1-9afa-4fb1-a51c-012913c3b865
